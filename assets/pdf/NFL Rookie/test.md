@@ -1,1 +1,0 @@
-NFL Rookie placeholder
